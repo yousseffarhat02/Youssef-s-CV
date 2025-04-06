@@ -1,4 +1,4 @@
-# Youssef-s-CV
+# Me presento
 
 👋 ¡Hola! Soy Youssef Farhat<br><br>
 Técnico en Sistemas Microinformáticos y Redes con formación complementaria en Diseño Web, WordPress, WooCommerce y Marketing Digital. Apasionado por la tecnología, el posicionamiento web y el desarrollo de tiendas online.<br><br>Actualmente...<br>¡Enfocado en seguir creciendo como profesional del mundo digital!
